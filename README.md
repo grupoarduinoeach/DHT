@@ -1,0 +1,1 @@
+![alt tag](https://github.com/grupoarduinoeach/DHT/blob/master/Circuito%20Teste.jpg?raw=true)
